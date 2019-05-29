@@ -1,1 +1,1 @@
-# pjx7.github.io
+maps of my favorites destionations
